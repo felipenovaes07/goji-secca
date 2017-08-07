@@ -18,8 +18,7 @@ Neste você é capaz de perder peso Blog da Gimenez naturalmente. Embora você 
 
 Isso não vai ajudá-lo a largar o peso extra. Se você está aqui para entender como perder peso de forma rápida e fácil do que colocar em todos aqueles que estudam óculos meu amigo, você chegou no lugar apropriado.
 
-[![Reclame Aqui](http://gojiseccas.net/wp-content/uploads/2016/12/goji-secca.jpg)](http://www.blogdagimenez.com.br/viva-hair/)
-
+[![Reclame Aqui](http://gojiseccas.net/wp-content/uploads/2016/12/goji-secca.jpg)]
 Um peso saudável garante de um livre de **doença modo de vida e não como muitas visitas para o prestador de cuidados de saúde**.
 
 ## A Estratégia Ideal para Alimentos para Perder Peso
@@ -32,7 +31,7 @@ Depois o peso deve sair de usar esses **5 de rápida redução de peso dicas par
 
 Recompense a si mesmo como você largar o peso. Localize o tempo para trabalhar fora e, gradualmente, melhorar o seu programa de exercícios que vão ajudar você a manter o peso. Emagrecer é algo que muitas pessoas com dificuldades.
 
-[![Depoimentos](https://www.suplementosbrasil.org/wp-content/uploads/2015/10/goji-sbelt-1.png)](http://www.blogdagimenez.com.br/goji-secca/)
+[![Depoimentos](https://www.suplementosbrasil.org/wp-content/uploads/2015/10/goji-sbelt-1.png)]
 
 O acima mencionado dicas de perda de peso pode permitir que você a perder peso mais rápido. Sim, enquanto você está fazendo tudo o que você é Blog da Gimenez capaz, para se Viva Hair obter o peso, é mais **importante ter certeza de que você não está perdendo os suado libras**, sem o seu conhecimento Goji Secca. Além disso, dormir o suficiente também dar-lhe a capacidade de emagrecer desde que você obter uma nova mente.
 
